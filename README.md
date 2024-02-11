@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Newmanlixin108108
 - 👀 I’m interested in Rust&Solidity develop
-- 📫 WhatsApp: +44 75938 90900
+- 📫 WhatsApp: +86 151 0153 3602
 - 📫 email: liniuman6@gmail.com
